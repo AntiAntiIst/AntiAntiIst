@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AntiAntiIst. I stringly dislike almost everything.
+- 👋 Hi, I’m @AntiAntiIst. I dislike almost everything.
 - 👀 I’m interested in very little.
 - 🌱 I’m currently learning humans.
 - 💞️ I’m looking to collaborate on absolutely nothing.
